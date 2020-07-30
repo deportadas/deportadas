@@ -11,5 +11,5 @@
 - 💬 Ask me about Cualquier cosa .. Anything
 - 📫 How to reach me: --- [Youtube Channel] (http://deportadas.video)
 - 😄 Pronouns: Carpediem He Him
-- ⚡ Fun fact: Life is too short
+- ⚡ Fun fact: Life is too short https://www.aboutmonica.com/blog/how-to-create-a-github-profile-readme
 
